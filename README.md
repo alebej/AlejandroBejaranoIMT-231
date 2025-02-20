@@ -1,2 +1,2 @@
 # AlejandroBejaranoIMT-231
-.
+Hola,soy Alejandro Bejarano Romero ingenieria mecatronica porque la considero como la ingenieria mas completa ademas de tener un gran futuro en el ambito laboral, lo primero que me gustaria hacer al terminar la carrera es el apartado automotris 
